@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **React**
 
-- 📫 How to reach me **rizwanali4579897@gmail.com**
+- 📫 How to reach me **rizwanali4574992@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
